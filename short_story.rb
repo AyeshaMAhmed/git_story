@@ -5,4 +5,4 @@ They lived with their Mother in a sand-bank, underneath the root of a very big f
 "NOW, my dears," said old Mrs. Rabbit one morning, "you may go into the fields or down the lane, but don't go into Mr. McGregor's garden: your Father had an accident there; he was put in a pie by Mrs. McGregor."
 
 "NOW run along, and don't get into mischief. I am going out." 
-Please be good. 
+Please be good. I want everyone to get along. 
